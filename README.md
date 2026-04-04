@@ -1,16 +1,62 @@
-## Hi there 👋
+<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+𝗠𝗔𝗜𝗡 𝗜𝗡𝗙𝗢
 
-<!--
-**DeliriousBunny/DeliriousBunny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+. .╭┈ ᐟᐟ☆🦓🥕 *intro* .ᐟ 
 
-Here are some ideas to get you started:
+. .┇ ◟ **NAME : Ame**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+. .┇ ◟ **AGE : 16**
+
+. .┇ ◟ **PRNS : They / it**
+
+. .┇ ◟ **EXTRA : AUDHD, sapphic & taken, suspected BPD, and medically recognized OSDD**
+
+. .╰ ┈ ᐟ☆🦓🥕
+
+<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+
+𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦 & 𝗗𝗡𝗜
+
+╭──────────.★..─╮
+
+┇ ♡ **Umamusume**
+
+┇ ♡ **Piggy**
+
+┇ ♡ **Yandere Simulator**
+
+┇ ♡ **Vocaloid**
+
+┇ ♡ **Needy Streamer Overload**
+
+┇ ♡ **Touhou**
+
+┇ ♡ **Doki Doki Literature Club**
+
+╰─..★.──────────╯
+
+***DNI***
+
+╭──────────.★..─╮
+
+┇ × **Racists**
+
+┇ × **Pedophiles/Zoophiles**
+
+┇ × **Yandev supporters**
+
+┇ × **Under 15**
+
+┇ × **IRL gore likers/fetishizers omfg dni**
+
+╰─..★.──────────╯
+
+<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+
+𝗢𝗧𝗛𝗘𝗥 𝗦𝗧𝗨𝗙𝗙
+
+- I don't try on my PT skins I just throw stuff together and hope it looks atleast a bit decent :sob:
+- **Main PT skins: N/A RN.**
+- **I mainly sit above docks or in the fnaf area**
+- CREDITS FOR DIVIDERS: dollywons on Tumblr
+- I'm really shy, so I might be dry at first, but I'll warm up after a while!!
