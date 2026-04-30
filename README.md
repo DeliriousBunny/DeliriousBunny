@@ -9,7 +9,7 @@
 
 . .┇ ◟ **PRNS : They / it**
 
-. .┇ ◟ **EXTRA : AUDHD, aroace & taken, suspected BPD, and medically recognized OSDD**
+. .┇ ◟ **EXTRA : AUDHD, aroace & taken, suspected BPD, and HEAVILY SUSPECTED OSDD (I AM SEEING A DOCTOR)**
 
 . .╰ ┈ ᐟ☆🦓🥕
 
