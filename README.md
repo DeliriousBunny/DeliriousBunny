@@ -9,7 +9,7 @@
 
 . .┇ ◟ **PRNS : They / it**
 
-. .┇ ◟ **EXTRA : AUDHD, sapphic & taken, suspected BPD, and medically recognized OSDD**
+. .┇ ◟ **EXTRA : AUDHD, aroace & taken, suspected BPD, and medically recognized OSDD**
 
 . .╰ ┈ ᐟ☆🦓🥕
 
@@ -19,7 +19,7 @@
 
 ╭──────────.★..─╮
 
-┇ ♡ **Umamusume**
+┇ ♡ **Dandy's World**
 
 ┇ ♡ **Piggy**
 
@@ -29,7 +29,7 @@
 
 ┇ ♡ **Needy Streamer Overload**
 
-┇ ♡ **Touhou**
+┇ ♡ **Umamusume**
 
 ┇ ♡ **Doki Doki Literature Club**
 
@@ -57,6 +57,6 @@
 
 - I don't try on my PT skins I just throw stuff together and hope it looks atleast a bit decent :sob:
 - **Main PT skins: N/A RN.**
-- **I mainly sit above docks or in the fnaf area**
+- **No current specific area I sit!**
 - CREDITS FOR DIVIDERS: dollywons on Tumblr
 - I'm really shy, so I might be dry at first, but I'll warm up after a while!!
