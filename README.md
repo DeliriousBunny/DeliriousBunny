@@ -3,7 +3,7 @@
 
 . .╭┈ ᐟᐟ☆🦓🥕 *intro* .ᐟ 
 
-. .┇ ◟ **NAME : Ame**
+. .┇ ◟ **NAME : Ame / whoever is fronting**
 
 . .┇ ◟ **AGE : 16**
 
